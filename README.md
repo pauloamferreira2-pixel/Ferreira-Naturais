@@ -1,2 +1,2 @@
 # Ferreira-Naturais
-Empresa que trabalha no ramo de Suplementos, Produtos naturais encapsulados e Temperos
+Ferreira Naturais | Sua loja de produtos naturais, temperos e suplementos. Qualidade, economia e saúde em um só lugar.
